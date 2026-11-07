@@ -1,3 +1,5 @@
+2018~2027 Programmer
+
 i love money | من عاشق پولم
 
 i dont speak german! im here for money MONEY! 

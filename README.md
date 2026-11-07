@@ -6,5 +6,5 @@ i dont speak german! im here for money MONEY!
 
 updates | بروزرسانی:
 
- # اسکای ماین زد
-پلاگین اسکای ماین پرایوت شد.
+# اسکای ماین زد | SkyMineZ
+پلاگین اسکای ماین پرایوت شد. | plugin is private now
